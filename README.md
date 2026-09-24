@@ -1,1 +1,1 @@
-# Chucksstuff is just a few things that I enjoyed having, creating, rebuilding, or refurbishing. Plus I now enjoy<p> doing HTML.
+# Chucksstuff is just a few things that I enjoyed having, creating, rebuilding, or refurbishing. Plus I now enjoy<p> doing HTML I was self taught HTML coding about 18 years ago, so some of my pages are old style.
